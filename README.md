@@ -1,5 +1,5 @@
 # Spiderman-Mockup
-Just a design I came across on Dribble and thought "oh cool let me see if I can make it".
+Just a design I came across on Dribble and thought "oh cool let me see if I can make it". Needless to say it's alright, nothing special. Definently alot of differences. Great design by Alex Eletskiy nonetheless.
 
 # Inspiration
 By Alex Eletskiy
